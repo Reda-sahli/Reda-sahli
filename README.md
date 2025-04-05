@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [It will be available soon..](It will be available soon..)
 
-- 📫 How to reach me **redasahli2003@gmail.com**
+- 📫 How to reach me **coodenow@gmail.com **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
